@@ -1,1 +1,2 @@
-# message_to_john
+I'm really not sure how exactly I would live up to the beautiful heartfelt message you gave me on my birthday. I think it's a great example of why I've always valued our friendship; whether it be a heartfelt note given at a birthday or something less direct, like a kind comment at lunch, it's always quite clear how much you care. I think for the whole time that we've been friends, I've never once seriously thought of you in a negative light. I truly hope, above little else, that we can maintain our friendship for a long time. Thank you for everything, John.
+- Sofia
